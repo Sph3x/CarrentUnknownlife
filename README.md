@@ -11,3 +11,6 @@
 5: Have fun ! :)
 
 Copyright
+
+For Support: https://discord.gg/Y2KJSY4
+For direct Support: ^Mika#4672
